@@ -26,3 +26,14 @@
 # 1/68 Haseler Crescent Bucklands Beach
 
 > 分隔地，内部，车道长
+
+# 1/5 Cornelian Crescent Half Moon Bay
+
+> 分隔地内部，车道长
+
+# 17 Falstaff Place Half Moon Bay
+
+> RV 1.22M, asking price 1.22M
+> 4r/3b, 230m^2, 504m^2
+> Paul Wang
+> (021) 681023
