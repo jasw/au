@@ -37,3 +37,11 @@
 > 4r/3b, 230m^2, 504m^2
 > Paul Wang
 > (021) 681023
+
+# 10A Birman Close 
+
+> 130m^2, 2户共享1054平米
+
+# 1/47 Prince Regent Drive
+
+> 分隔地，2户Unit，3房1浴
