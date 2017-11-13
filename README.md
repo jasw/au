@@ -9,12 +9,13 @@
 # 中介信息
 
 - 网址
-- 电话
 - 中介姓名
+  - 电话
 
 # 价格
 
 - asking price
+- CV价格
 - relab预计价格
 - broker反馈价格
 
