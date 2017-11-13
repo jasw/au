@@ -31,15 +31,6 @@
 
 > 分隔地内部，车道长
 
-# 17 Falstaff Place Half Moon Bay
-
-> RV 1.22M, asking price 1.22M
-> 4r/3b, 230m^2, 504m^2
-> Paul Wang
-> (021) 681023
-
-**- 待核实**
-
 # 10A Birman Close 
 
 > 130m^2, 2户共享1054平米
@@ -51,6 +42,15 @@
 # 1/53 Stanniland Street
 
 > 分隔地内部，车道长，外立面怪异
+
+# 17 Falstaff Place Half Moon Bay
+
+> RV 1.22M, asking price 1.22M
+> 4r/3b, 230m^2, 504m^2
+> Paul Wang
+> (021) 681023
+
+**- 待核实**
 
 # 49 Priestley Drive
 
@@ -65,5 +65,13 @@
 > 673平，园艺牛逼，relab预计$165万，RV 1M
 > Penelope Franca
 > 021 127 5573
+
+**- 待核实**
+
+# 2 Lilian Place, Farm Cove
+
+> 837平，周正，relab预计$160万，RV 97W
+> Michelle Grocock
+> 021 171 4647
 
 **- 待核实**
