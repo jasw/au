@@ -52,6 +52,10 @@
 > Paul Wang
 > (021) 681023
 
+- 市场价售出 $1,500,000
+- RV 1.22M
+- 后花园、trade me: asking price 1.22M
+
 **- 待核实**
 
 # 49 Priestley Drive
