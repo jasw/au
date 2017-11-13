@@ -47,3 +47,7 @@
 # 1/47 Prince Regent Drive
 
 > 分隔地，2户Unit，3房1浴
+
+# 1/53 Stanniland Street
+
+> 分隔地内部，车道长，外立面怪异
