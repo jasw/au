@@ -3,3 +3,15 @@
 
 > 车道长，地小（2户共享903）
 
+# 36A Meadway Sunnyhills
+
+> 太小，2房1浴
+
+# 5 Hutchinsons Road Bucklands Beach
+
+> 内部红色木板，怪异
+
+# 7 Villa Court
+Eastern Beach
+
+> 小地（480）大房子（5房3浴）
