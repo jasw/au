@@ -56,6 +56,8 @@
 - RV 1.22M
 - 后花园、trade me: asking price 1.22M
 
+- plaster，漏水房
+
 **- 待核实**
 
 # 49 Priestley Drive
@@ -71,6 +73,8 @@
 > 673平，园艺牛逼，relab预计$165万，RV 1M
 > Penelope Franca
 > 021 127 5573
+
+- trademe估计146
 
 **- 待核实**
 
