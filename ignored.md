@@ -105,6 +105,10 @@
 
 > 两户共享822平，室内观感不太好
 
-# 	30 Jandell Cres Bucklands Beach
+# 30 Jandell Cres Bucklands Beach
 
 > RV 210万
+
+# 33 Hattaway Avenue Bucklands Beach
+
+> 两户共享874平，1/33 trademe 预计87万
