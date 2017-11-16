@@ -115,4 +115,4 @@
 
 # 50 Sorrel Crescent Bucklands Beach
 
-> 2户共享865平，RV 85万
+> 400平，RV 85万，relab预计：140，trademe 预计128
