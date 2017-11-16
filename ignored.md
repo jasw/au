@@ -104,3 +104,7 @@
 # 7A The Rosebowl Sunnyhills
 
 > 两户共享822平，室内观感不太好
+
+# 	30 Jandell Cres Bucklands Beach
+
+> RV 210万
