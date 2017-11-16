@@ -96,3 +96,7 @@
 # 82 Bleakhouse Road Mellons Bay
 
 > RV: 130万
+
+# 9 Tate Grove Half Moon Bay
+
+> RV：62万，靠近加油站
