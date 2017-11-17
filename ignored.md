@@ -116,3 +116,7 @@
 # 50 Sorrel Crescent Bucklands Beach
 
 > 400平，RV 85万，relab预计：140，trademe 预计128
+
+# 9 The Parade Bucklands Beach
+
+> 大房子小地，RV2.475M
